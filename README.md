@@ -12,6 +12,6 @@
 
 ## Contact  
 - **Email:** [ivan.ballesteros.felipe@estudiantat.upc.edu)  
-- **Phone:** [+34 663467938)  
+- **LinkTree:** linktree.com/ivanballesterosfelipe  
 
 Thanks for visiting! 🚀  
